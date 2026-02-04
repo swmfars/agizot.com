@@ -1,2 +1,2 @@
-# agizot.com
-AGI ZOT
+# agiflo.com
+AGI FLO
